@@ -109,6 +109,7 @@ Kaspars R.
 Rēzekne, 2025
 
 
+<img width="727" height="260" alt="image" src="https://github.com/user-attachments/assets/670a14a1-1fca-40ca-9b14-ef752725ed11" />
 
 
 
